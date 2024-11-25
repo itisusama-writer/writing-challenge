@@ -1,0 +1,15 @@
+- hehe
+- girl got a haircut just to feel something and all she could feel was misery and regret after it. (i'm girl)
+- kuch nae bhai bus internship fomo hora hai
+- Hate it when i'm super tired and sleep deprived and in the perfect position to sleep BUT I DON'T SLEEP and endup scrolling and binge watching for 3-4 hours. Love making myself miserable <3
+- threads i need DRAFTS please, i'm not always ready to put my thoughts out there !!!
+- i was in my own lil lahori bubble until i got on gt road and realised how fuc*ing terrible it is out thereee
+- oh so we're gon use old twitter memes to get followers here
+- why am i seeing ppl hating on others for posting media? this makes me wanna post all the media i got just to piss y'all off
+- mere pass childhood trauma hai from it
+- "You made a rebel of a careless man's careful daughter.
+- I am never getting over this lyric"
+- no way i'd be able to stay mysterious the way i've always been to my ig followers
+- I SCREAMED
+- itna crowded feel kyun hora hai idher
+- i was barely active on twt idk what i'm doing here
