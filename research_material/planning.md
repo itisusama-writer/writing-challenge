@@ -10,3 +10,5 @@ Aab is hand print ko use kia jae ga agey ke main plan ko execute karney k liey.
 # How the sytem will work
 - Bio signature is taken.
 - Tahir created a system to record live data to that bio signature.
+- Dr. MARK will create and automated system and AI to filter the moments.
+- The automated system will analyze and release data in a set moment.
