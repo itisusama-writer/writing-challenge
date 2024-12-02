@@ -8,11 +8,14 @@
 - Some say her ambition stems from defiance, a silent rebellion against unseen shackles. Others believe it's her way of proving she belongs in a world that demands perfection.  
 - But Zereenab’s world isn’t as perfect as it seems, and she’s about to be pulled into a chain of events that will test every boundary she’s ever set.     
 
-**Chapter 2:** *The Inciting Incident*  
+**Chapter 2:** *The Charity Event*  
 A shocking event disrupts the protagonist’s routine, forcing them to confront a problem.  
 
-**Chapter 3:** *Initial Response*  
-The protagonist hesitates to act but faces pressure to take the first step forward.  
+**Chapter 3:** *It Started*  
+- in the morning zuree saw a post going viral.
+- when she saw that she got shocked. It was an inappropriate picture with her ex boyfriend.
+- she talked to everyone but know one knows who was the one who made the post viral.
+- she cried and cried a lot and didn't left her hostel room the whole day.  
 
 #### **Block 2: Key Event and First Threshold (Chapters 4–6)**  
 **Chapter 4:** *New Opportunity*  
