@@ -1,3 +1,5 @@
+# The Charity Event
+
 It was the second week of Ramzan in LUMS, all the hussel and bussel all around the campus. Students were running to their classes, some chatting about a upcomming event. Some taking pictures of the a new innovation of Dr. Mark, the machine learning professor.
 
 I noticed it through posters on campus and social media announcements from the LUMS student council. 
