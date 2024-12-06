@@ -1,4 +1,4 @@
-**Chapter 1: Introduction**  
+# Introduction
 
 The sunlight streamed through the cream-colored curtains of Zuree's hostel room, the faint hum of campus life filtering through her slightly cracked window. The muted buzz of early morning chatter mixed with the occasional bicycle bell echoed in the courtyard below. Zuree sat up, her hands instinctively brushing through her disheveled hair. The desk by her bed was a chaotic tableau: stacks of books, mismatched coffee mugs, and her ever-glowing ring light. a silent testament to the duality of her existence.  
 
