@@ -1,28 +1,22 @@
 # Chapter 8: The Revelations  
 
-The morning was unusually still, but Zuree's mind buzzed with noise. Every glance from her peers felt like a dagger. The scandal spread further, accompanied by cruel whispers and pointed laughter. She avoided the dining hall, opting to skip breakfast and stay in her room, but isolation only amplified the tension.  
+The morning was unusually still, but Zuree's mind buzzed with noise. Every glance from her peers felt like a dagger. The scandal spread further, getting blackmailed by Dr. Mark, and accompanied by cruel whispers and pointed laughter. She avoided the dining hall, opting to skip breakfast and stay in her room, but isolation only amplified the tension.  
 
----
+---  
 
-### Scene 1: **Neha Discovers the Truth**  
-
-Neha sat on the stone bench behind the hostel, the crisp morning air stinging her cheeks. She lit a cigarette, inhaling deeply as the familiar burn filled her lungs. Smoking wasn't a habit, but an occasional escape—a way to process.  
+Neha sat on the stone bench behind the hostel, the crisp morning air stinging her cheeks. She lit a cigarette, inhaling deeply as the familiar burn filled her lungs. Smoking wasn't a habit, but an occasional escape... a way to process.  
 
 Her phone vibrated, and she lazily scrolled through her feed. The post about Zuree appeared almost immediately, its cruel captions glaring back at her. Neha froze, the cigarette dangling from her fingers.  
 
-"That's her," she muttered to herself, exhaling smoke. She recognized Zuree from last night—the tense girl with haunted eyes. Her stomach tightened at the sight of the photo and the mocking comments flooding the post.  
+"That's her," she muttered to herself, exhaling smoke. She recognized Zuree from last night... the tense girl with haunted eyes. Her stomach tightened at the sight of the photo and the mocking comments flooding the post.  
 
 Neha took another drag, letting the smoke curl around her as she stared at the screen. *What kind of person would do this?* she thought. *And why target her?*  
-
----
-
-### Scene 2: **Reaching Out**  
 
 By mid-afternoon, Neha couldn't shake the uneasy feeling gnawing at her. She climbed the stairs to Zuree's floor and hesitated in front of her door before knocking lightly.  
 
 A muffled voice came from inside. "Who is it?"  
 
-"It's Neha," she called out. "From last night... in the kitchen."  
+"It's Neha..." she called out. "From last night... in the kitchen."  
 
 There was a pause before the door creaked open. Zuree stood there, her face pale and eyes puffy from lack of sleep.  
 
@@ -36,9 +30,9 @@ Zuree flinched, crossing her arms tightly. "Everyone has," she muttered. "What d
 
 Zuree blinked, surprised. "Help? Why? You don't even know me."  
 
-Neha shrugged. "I don't need to know someone to see when they're being treated unfairly." She paused. "I've had my share of... people trying to ruin me. I know how it feels to be cornered."  
+Neha shrugged. "I don't need to know someone to see when they're being treated unfairly..." She paused. "I've had my share of... people trying to ruin me. I know how it feels like being in this situation."  
 
-Zuree sat on the edge of her bed, her defenses wavering. "You don't understand. This isn't just rumors—it's deliberate. Someone is targeting me, and I don't know why."  
+Zuree sat on the edge of her bed, her defenses wavering. "You don't understand. This isn't just rumors... it's deliberate. Someone is targeting me... and I don't know why."  
 
 Neha leaned forward. "Tell me everything," she said firmly.  
 
