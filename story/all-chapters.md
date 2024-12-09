@@ -210,3 +210,185 @@ And yet, that stubborn part of her... the part that refused to let this person w
 She also decided to inspect her devices. Maybe there was a clue there, a piece of spyware or a strange log entry she'd overlooked. It wasn't much, but it was a start. The thought of taking action, however small, gave her a flicker of hope. 
 
 For the first time in weeks, Zuree felt a shift. The fear was still there, sharp and suffocating, but so was the fight. Whoever was doing this thought they could control her, that they could trap her in their game. But Zuree wasn't going to play by their rules anymore.
+
+# The Meeting  
+
+Zuree strode briskly between lecture halls. Her mind was a tangle of thoughts, the cacophony of her recent experiences pressing against her temples. She barely noticed when Dr. Mark stepped into her path until his voice cut through her haze.  
+
+"Zuree, a moment of your time, if you don't mind?"  
+
+Startled, she stopped and turned, forcing a polite, fake smile. "Of course... Is something wrong?"  
+
+Dr. Mark's calm demeanor was oddly unsettling. He adjusted the strap of his leather bag and tilted his head slightly. "Not wrong, per se. I noticed you seemed... troubled at the charity event. That scanner can be intimidating to some."  
+
+Zuree stiffened, the air around her suddenly heavier. "I wouldn't say intimidating... Just new technology, right?"  
+
+Dr. Mark leaned closer, his voice dropping to a whisper. "New technology always comes with... possibilities. You'd be surprised what it can uncover."  
+
+They found themselves in an empty lecture hall, the dim lighting and echo of their footsteps amplifying the tension. Dr. Mark took a seat on the edge of a desk, casually folding his arms. Zuree remained standing, her hands clasped tightly.  
+
+"I've always been fascinated," Dr. Mark began, "by how much a single piece of data can reveal about someone. A handprint, for instance... it tells a story. Sometimes one we don't even know we're sharing."  
+
+"Why are you telling me this?" Zuree's voice was sharper now, defensive. "Is there a problem with the data from the event?"  
+
+"Oh, no problem," he replied with a faint smile that didn't reach his eyes. "Just... observations. Let's just say some patterns stand out more than others."  
+
+Zuree's heart raced. "Patterns? What are you talking about?"  
+
+Dr. Mark let the silence stretch, his gaze steady on her. "Relax, Zuree. I'm just saying it's fascinating. You're an interesting subject... academically, of course."  
+
+The conversation left Zuree itching to leave, but as she turned to go, Dr. Mark's voice halted her.  
+
+"Sometimes, the things we want to hide are the very things that make us vulnerable," he said, his tone soft but weighted. "Be careful who you trust. Technology has a way of making secrets... public."  
+
+She froze in her tracks. "What are you trying to say?"  
+
+Dr. Mark's faint smile returned, this time with a hint of something darker. "Just a piece of advice. Take it or leave it."  
+
+---
+
+Back in her room, Zuree locked the door and slumped against it, her legs giving way. The tears came before she could stop them, a torrent of fear and frustration spilling over.  
+
+*"How does he know? Was that a threat? Does he have something to do with this?"*  
+
+Her thoughts spiraled, each question more suffocating than the last. She threw herself onto her bed, gripping her pillow as if it could anchor her to reality.  
+
+*"Why did I let him get to me? What am I supposed to do now?"*  
+
+Her phone buzzed on the bedside table, and she lunged for it, half-expecting another coded message. But the screen was blank, save for the usual notifications. The silence was unbearable.  
+
+Hours later, Zuree sat cross-legged on the floor, staring into space as she replayed the conversation in her mind.  
+
+*"Patterns... vulnerable... secrets becoming public... He knows something. He has to."*  
+
+Her breathing slowed as the pieces refused to fit together.  
+
+*"But why would he approach me like that? Was he warning me? Or... taunting me?"*  
+
+Her phone vibrated in her hand, breaking her reverie. A message flashed across the screen from an **SB-LS-YTG6CWWY**:  
+
+*"He's watching you. Be careful."*  
+
+Zuree's breath hitched, the weight of the warning pressing down on her chest. She looked toward the window, the creeping darkness outside a reflection of the storm brewing within.  
+
+# The Consequences
+
+The morning light filtered through the blinds as Zuree dragged herself out of bed. The cryptic message still glowed in her mind like a flashing alarm. She dressed hastily, her heart heavy, and decided there was no other option. She needed help... official help.  
+
+At the police station, Zuree explained her situation to the officer behind the desk. "There's someone... following me. They're using technology to..."  
+
+Before she could finish, the officer's phone buzzed. He glanced at the screen, and his face paled. A message from **SB-SS-UHB8SQV** had appeared.  
+
+*"Officer Karim, 2018. That night. Do you want it leaked?"*  
+
+Karim's jaw tightened, his hand lingering on the phone as if debating whether to throw it across the room or bury it in his pocket. His mind raced. *How do they know about this? After all these years?* He swallowed hard, his fingers clenching the edge of the desk.  
+
+He forced a deep breath and looked up at Zuree. "You're saying someone is stalking you? Using technology how?"  
+
+Zuree hesitated. "I don't know exactly. They're sending messages, cryptic ones. And now it feels like..." She trailed off, searching for words. "Like they're everywhere. Watching everything I do."  
+
+Karim leaned back in his chair, feigning thoughtfulness while panic surged through him. "Do you have these messages? Anything concrete?"  
+
+Zuree fumbled with her phone, pulling up screenshots of the warnings. She held it out to him. He glanced at the screen briefly but didn't touch the device. "Hmm. It could be spam," he said dismissively.  
+
+"Spam?" Zuree's voice rose. "This isn't random. It's targeted! Someone's trying to ruin me, and I think they're connected to the campus."  
+
+Karim tapped his pen against the desk, avoiding her eyes. His mind was elsewhere, back to 2018, to the mistake that had haunted him in private but never surfaced. Until now.  
+
+"We'll look into it," he finally said, his tone clipped and distant.  
+
+Zuree's frustration boiled over. "That's it? That's all you're going to do?"  
+
+"Miss," Karim said firmly, "these things take time. You'll have to be patient."  
+
+"But what if..."  
+
+"Patience," he repeated, cutting her off, his tone turning cold. "We'll be in touch."  
+
+Zuree stood frozen for a moment, the dismissal sinking in. With a tight nod, she turned and walked out of the station, her stomach sinking further with every step. Behind her, Karim slumped in his chair, the weight of his secret bearing down harder than ever.  
+
+Returning to campus, Zuree tried to steady herself. *"Maybe they'll actually investigate... Maybe I'll hear back soon."* But as she crossed the quad, whispers followed her.  
+
+Her phone buzzed with notification after notification. She hesitated before opening one. Her breath caught in her throat.  
+
+A photo... one from years ago, one she had never wanted to see again... was spreading across campus social media. The image was out of context, doctored just enough to implicate her in something sordid.  
+
+The whispers turned into outright laughter and murmured insults as students passed her. The weight of their judgment pressed down on her like a physical force.  
+
+Tears burned at the corners of her eyes, but she refused to let them fall. *"This can't be happening."*  
+
+The hallways were deserted as Zuree stormed into Dr. Mark's office, the door slamming against the wall. She didn't bother knocking.  
+
+Dr. Mark looked up from his desk, his expression calm but with a glint of something darker in his eyes. "Zuree," he said evenly, his voice almost welcoming. "To what do I owe this... passionate entrance?"  
+
+"You know what this is about," she snapped, her voice trembling with anger and desperation. "You did this, didn't you? The photos, the messages... everything. You're trying to ruin me!"  
+
+Dr. Mark's lips twitched into a faint smile as he closed the folder on his desk with deliberate slowness. "Careful," he said, his tone soft but sharp, like a scalpel cutting through her resolve. "Throwing around accusations can be dangerous... especially for someone like you."  
+
+Zuree's fists clenched at her sides. "I won't let you destroy my life. Whatever game you're playing, I'm not your pawn."
+
+He leaned back in his chair, studying her with an air of amusement. "Pawn? Oh, Zuree, you're giving yourself too little credit. You're much more important than that."  
+
+Her heart pounded. "What are you talking about?"  
+
+Dr. Mark stood slowly, his imposing frame casting a long shadow that seemed to swallow the room. He moved to the window, looking out over the campus with an air of detachment. "You know," he began, "the funny thing about secrets is how easily they unravel when you pull the right thread. One handprint. One scan. One careless mistake at a charity event... and suddenly, a tapestry of truths unfolds."  
+
+Zuree's breath caught in her throat. "What... what are you saying?"  
+
+He turned to face her, his smile now fully predatory. "I'm saying that by the end of the week, everyone will know what you've been hiding. Your spotless reputation? Consider it history. That internship you're hoping for? Gone. Your friends? Well, they'll see you in a whole new light."  
+
+Her knees felt weak, but she refused to let him see her falter. "You can't do this."  
+
+"I'm not doing anything," he said with a mock... innocent shrug. "You did it to yourself. I'm just making sure the truth gets the audience it deserves."  
+
+The room spun as his words sank in. Zuree tried to speak, but her throat tightened, leaving her voiceless.  
+
+Dr. Mark moved closer, his voice dropping to a whisper. "You came here looking for answers, Zuree. Now you have them. The question is... what are you going to do about it?"  
+
+Dr. Mark stepped past her, his presence lingering in the room like a stormcloud.  
+
+# A Midnight Encounter
+
+The clock on the wall blinked 1:37 AM as Zuree padded silently into the common kitchen, the faint glow of her phone lighting the way. Her mind was a whirlwind, the recent scandal leaving her sleepless and on edge. She ran her fingers through her hair, gripping the edges of the counter as she tried to steady her breathing.  
+
+The faint clink of a spoon startled her. Zuree's head snapped up, her heart pounding.  
+
+"Sorry!" came a soft voice. "I didn't mean to scare you."  
+
+Zuree turned to see a girl standing near the microwave, a steaming mug of black coffee in her hands. She was wearing pajama pants and a loose hoodie, her dark hair tied in a messy bun.  
+
+"It's okay," Zuree mumbled, forcing a small, polite smile. She moved toward the sink to pour herself a glass of water, hoping the conversation would end there.  
+
+"You're up late," the girl said, her tone gentle but curious. "Couldn't sleep?"  
+
+Zuree hesitated, then nodded. "Something like that."  
+
+The girl gave a small chuckle. "Same here. First night in a new place... it always takes me a while to adjust."  
+
+Zuree turned slightly, surprised. "You're new?"  
+
+"Yeah, just moved in today... Neha Harun," the girl said, smiling as she extended a hand.  
+
+Zuree hesitated, then shook it. "Zureenab Nasir."  
+
+Neha gestured toward the mug in her hand. "Want some black coffee? It helps sometimes... or at least, that's what my my husband once said."  
+
+Zuree blinked, caught off guard by the simple kindness. "Uh, sure. Thanks."  
+
+As Neha poured her a mug, Zuree leaned against the counter. "How are you finding the hostel so far?"  
+
+"It's... different," Neha admitted, handing her the mug. "But I like the quiet at night. Feels like I can think clearly."  
+
+Zuree gave a small nod, taking a sip. For a moment, they stood in silence, the hum of the refrigerator the only sound between them.  
+
+"So, what about you?" Neha asked cautiously. "You okay?"  
+
+Zuree's grip on the mug tightened. "I... It's been a tough day."  
+
+Neha tilted her head slightly, her expression empathetic but not probing. "If you ever want to talk, I'm here. I'm a good listener."  
+
+Zuree looked at her, surprised by the sincerity in her voice. She opened her mouth to respond but closed it again, unsure of what to say.  
+
+"Anyway," Neha said, sensing Zuree's hesitation, "I'll let you have some peace. But really, I'm just upstairs if you need anything."  
+
+As Neha left, Zuree watched her go, the warmth of the black coffee in her hands contrasting with the cold knot of fear in her chest. For the first time in days, she felt a faint glimmer of relief... Maybe she didn't have to face everything alone.  
