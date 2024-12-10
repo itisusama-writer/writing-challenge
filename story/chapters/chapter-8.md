@@ -36,11 +36,7 @@ Zuree sat on the edge of her bed, her defenses wavering. "You don't understand. 
 
 Neha leaned forward. "Tell me everything," she said firmly.  
 
----
-
-### Scene 3: **The Connection**  
-
-Zuree hesitated, but something about Neha's presence was disarming. Slowly, she recounted the events—the cryptic messages, the police's dismissal, and her confrontation with Dr. Mark. Neha listened intently, her cigarette now forgotten on the edge of a plate.  
+Zuree hesitated, but something about Neha's presence was disarming. Slowly, she recounted the events... the cryptic messages, the police's dismissal, and her confrontation with Dr. Mark. Neha listened intently, her cigarette now forgotten on the edge of a plate.  
 
 "This Dr. Mark," Neha said, frowning, "he sounds... calculating. If he's involved, he's not just playing games. There's something bigger going on."  
 
