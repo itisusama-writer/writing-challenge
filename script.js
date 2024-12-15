@@ -1,5 +1,5 @@
 // Fetch and render the Markdown file
-fetch('story/chapters/chapter-12.md')
+fetch('story/chapters/chapter-15.md')
 .then(response => {
     if (!response.ok) {
         throw new Error(`HTTP error! status: ${response.status}`);
